@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ARUNVKOFFICIAL
+- 👋 Hi, I’m @ARUNVK
 - 👀 I’m interested in AI, SOFTWARE AND CYBERSECURITY
 - 🌱 I’m currently STUDYING IN KARUNYA UNVERSITY
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to upskill my knowledge
 - 📫 How to reach me ON MAIL arunvkofficial7@gmail.com
 
 <!---
